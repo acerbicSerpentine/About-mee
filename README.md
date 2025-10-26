@@ -1,5 +1,6 @@
 # About-mee
 Read this for information
+this is a wip
 
 hellooo, my name is Tin, i go by she/her
 
