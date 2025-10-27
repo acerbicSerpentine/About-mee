@@ -12,3 +12,18 @@ you are welcome to sit with me for any reason! and talk to me for any reason too
 if you have any preferred pronouns or names you'd like me to use, tell me and i will do my best to make you feel comfortable! if i screw up, it is not on purpose, feel free to point it out
 
 i am in an Eastern European timezone, and am usually online for multiple hours at a time
+
+
+  ![0052-cancer](https://github.com/user-attachments/assets/fbd79e5a-64ea-4665-846e-c7e28b9c8334)
+
+
+![0042-aries](https://github.com/user-attachments/assets/083b9700-6a73-469a-bd8f-a6cdb7b9e268)
+
+![0043-taurus](https://github.com/user-attachments/assets/5394ad09-c248-48c8-a40d-dd79fa02d2f7)
+
+![0040-gemini](https://github.com/user-attachments/assets/c7e20d3f-e957-4e04-8515-4cd24866a127)
+
+![0046-leo](https://github.com/user-attachments/assets/f5b310ee-a650-4ce4-9f84-f4e5a6ec4458)
+
+![0047-virgo](https://github.com/user-attachments/assets/7cd1ac51-85a0-419c-9bcc-a410a76da1e7)
+
