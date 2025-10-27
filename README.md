@@ -19,26 +19,26 @@ if you have any preferred pronouns or names you'd like me to use, tell me and i 
 i am in an Eastern European timezone, and am usually online for multiple hours at a time
 
 
-![0052-cancer](https://github.com/user-attachments/assets/00cd8385-bf0d-42b7-b0dc-155d307d260e) how
+‎ ‎![0052-cancer](https://github.com/user-attachments/assets/00cd8385-bf0d-42b7-b0dc-155d307d260e) 
 
-![0042-aries](https://github.com/user-attachments/assets/083b9700-6a73-469a-bd8f-a6cdb7b9e268) the
+‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ![0042-aries](https://github.com/user-attachments/assets/083b9700-6a73-469a-bd8f-a6cdb7b9e268) 
 
-![0043-taurus](https://github.com/user-attachments/assets/5394ad09-c248-48c8-a40d-dd79fa02d2f7) hell
+![0043-taurus](https://github.com/user-attachments/assets/5394ad09-c248-48c8-a40d-dd79fa02d2f7) 
 
-![0040-gemini](https://github.com/user-attachments/assets/c7e20d3f-e957-4e04-8515-4cd24866a127) do
+‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ![0040-gemini](https://github.com/user-attachments/assets/c7e20d3f-e957-4e04-8515-4cd24866a127) 
 
-![0046-leo](https://github.com/user-attachments/assets/f5b310ee-a650-4ce4-9f84-f4e5a6ec4458) i
+![0046-leo](https://github.com/user-attachments/assets/f5b310ee-a650-4ce4-9f84-f4e5a6ec4458) 
 
-![0047-virgo](https://github.com/user-attachments/assets/7cd1ac51-85a0-419c-9bcc-a410a76da1e7) put
+‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ![0047-virgo](https://github.com/user-attachments/assets/7cd1ac51-85a0-419c-9bcc-a410a76da1e7) 
 
-![0048-libra](https://github.com/user-attachments/assets/ea332005-ad10-4305-950e-fbfc7d8c4963) these
+![0048-libra](https://github.com/user-attachments/assets/ea332005-ad10-4305-950e-fbfc7d8c4963)
 
-![0045-scorpio](https://github.com/user-attachments/assets/e5959e82-9939-469d-b0c5-dbf5c706e6d2) side
+‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ![0045-scorpio](https://github.com/user-attachments/assets/e5959e82-9939-469d-b0c5-dbf5c706e6d2) 
 
-![0049-sagittarius](https://github.com/user-attachments/assets/86aa9288-22fb-43dd-a4e9-a1fb363d8fbd) by
+![0049-sagittarius](https://github.com/user-attachments/assets/86aa9288-22fb-43dd-a4e9-a1fb363d8fbd) 
 
-![0050-capricorn](https://github.com/user-attachments/assets/02f4e1e5-dcdd-4011-97de-8ebef8cb8166) freaking 
+‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ![0050-capricorn](https://github.com/user-attachments/assets/02f4e1e5-dcdd-4011-97de-8ebef8cb8166) 
 
-![0041-aquarius](https://github.com/user-attachments/assets/cdca0492-476a-4b01-aef4-b248e97328d9) side
+![0041-aquarius](https://github.com/user-attachments/assets/cdca0492-476a-4b01-aef4-b248e97328d9) 
 
-![0051-pisces](https://github.com/user-attachments/assets/2f4daaa0-c476-4aed-824b-28d287526061) !!!!
+‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ![0051-pisces](https://github.com/user-attachments/assets/2f4daaa0-c476-4aed-824b-28d287526061)
