@@ -1,6 +1,7 @@
 # About-mee
-Read this for information
-this is a wip
+
+<img width="768" height="1024" alt="Untitled1980_20251027133838" src="https://github.com/user-attachments/assets/5e1f4842-0c1f-4648-9e7c-885b69c93970" />
+________________________________________
 
 hellooo, my name is Tin, i go by she/her
 
