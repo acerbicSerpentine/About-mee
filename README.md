@@ -9,17 +9,21 @@ _________ ![blinkiesCafe-49](https://github.com/user-attachments/assets/a7f7766d
  ![0270-owmybones](https://github.com/user-attachments/assets/8e1f0704-526f-4ed8-aa49-7c30728cc905)
 
 
-
-*hellooo, my name is Tin, i go by she/her*
-
+<p align="center">
+ hellooo, my name is Tin, i go by she/her
+</p>
+<p align="center">
 i have no dni criteria, anyone can be my friend
-
+</p>
+<p align="center">
 you are welcome to sit with me for any reason! and talk to me for any reason too
-
+</p>
+<p align="center">
 if you have any preferred pronouns or names you'd like me to use, tell me and i will do my best to make you feel comfortable! if i screw up, it is not on purpose, feel free to point it out
-
+</p>
+<p align="center">
 i am in an Eastern European timezone, and am usually online for multiple hours at a time
-
+</p>
 
 [![0052-cancer](https://github.com/user-attachments/assets/3a075076-6794-4875-b722-866eda7f1c3f)
 ](blink.ies)[![0042-aries](https://github.com/user-attachments/assets/17c2d0f6-e521-4140-ae3c-37347dddf048)
