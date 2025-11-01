@@ -76,10 +76,10 @@ many things in this life bring me joy, such as spoiling my friend.. i love spend
 ![Tumblr_l_249459981140201](https://github.com/user-attachments/assets/822a8b4a-5c05-425c-bfce-6397aabdb488)
 ![Tumblr_l_249496460772479](https://github.com/user-attachments/assets/0df17541-6764-41a2-abb3-cee4477b0b06)
 ![Tumblr_l_248743127161829](https://github.com/user-attachments/assets/33a5c07f-b053-413b-8077-22aea137db42)
-![Tumblr_l_248753446430992](https://github.com/user-attachments/assets/025a8bbe-9ae5-4919-8c35-a87cf6c97251)
 
 ‎ ‎ ‎ ‎ ‎ 
 <img width="99" height="56" alt="Tumblr_l_248847563505487" src="https://github.com/user-attachments/assets/8e00c4a1-82a3-49c6-b6c1-b1cbba16a13b" />
 ![Tumblr_l_249104779703306](https://github.com/user-attachments/assets/bdb36a05-f926-4b00-8d2b-41c79c5689c6)
 ![Tumblr_l_249345962308630](https://github.com/user-attachments/assets/d3c9df94-f785-4dee-a041-bc83b42d71db)
 ![Tumblr_l_249400476181683](https://github.com/user-attachments/assets/b3fa66cc-dbb3-42fd-ba1e-43b00a8e9a71)
+![Tumblr_l_13201308291421](https://github.com/user-attachments/assets/b43a9d98-6597-4c55-8b05-4d6ca7aee87f)
