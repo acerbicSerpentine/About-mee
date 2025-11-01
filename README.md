@@ -1,8 +1,13 @@
-# _×___. hey twin ;) .___×_
+![0d2812da-17ad-4586-8893-f82bb9b8f544](https://github.com/user-attachments/assets/032db0f6-8447-4734-9cbd-003b09d471e5)
 
 
-
-<img width="768" height="1024" alt="Untitled1980_20251027133838" src="https://github.com/user-attachments/assets/5e1f4842-0c1f-4648-9e7c-885b69c93970" />
+<img width="768" height="1024" alt="Untitled1997_20251101163058" src="https://github.com/user-attachments/assets/04feba98-627f-409f-ac85-194d37951b8b" />
+<p align="center">
+its yuri o'clock, oh would you look at that? it's yuri o'clock again, oh would you look at that?? it's yuri o'clock every hour of the day
+</p>
+<p align="center">
+ i am the #1 jadevris truther in this town❤️‍🩹
+</p>
 ________________________________________
 
 _________ ![blinkiesCafe-49](https://github.com/user-attachments/assets/a7f7766d-860c-4e7b-a8a8-da260183464c) __________
@@ -22,6 +27,9 @@ you are welcome to sit with me for any reason! and talk to me for any reason too
 if you have any preferred pronouns or names you'd like me to use, tell me and i will do my best to make you feel comfortable! if i screw up, it is not on purpose, feel free to point it out
 </p>
 <p align="center">
+ i am multifandom and a multishipper! despite how much i yap and yap about jadevris, i like other ships too 🥹
+</p>
+<p align="center">
 i am in an Eastern European timezone, and am usually online for multiple hours at a time
 </p>
 
@@ -38,3 +46,11 @@ i am in an Eastern European timezone, and am usually online for multiple hours a
 ](blink.ies)[![0041-aquarius](https://github.com/user-attachments/assets/b20b96fe-ab95-4d88-9292-6265ff060f24)
 ](blink.ies)[![0051-pisces](https://github.com/user-attachments/assets/5a0a7976-a12b-427e-9fc4-c4a29b436bdb)
 ](blink.ies)
+
+<p align="center">
+many things in this life bring me joy, such as spoiling my friend.. i love spending my money on other people.... or drawing an excessive amount of their ocs, or drawing them x their favourite character.. or making ocs for fandoms that i am not in just so we can talk about them..
+</p>
+
+<p align="center">
+ YES i will watch the shows you recommend me, YES i will play your recommended games, YES i will listen to your favourite artists and YES i will listen to you yap and yap and yap for hours <333
+ </p>
