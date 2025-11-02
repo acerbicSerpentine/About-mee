@@ -4,7 +4,7 @@
 
 <img width="768" height="1024" alt="Untitled1997_20251101163058" src="https://github.com/user-attachments/assets/04feba98-627f-409f-ac85-194d37951b8b" />
 <p align="center">
-its yuri o'clock, oh would you look at that? it's yuri o'clock again, oh would you look at that?? it's yuri o'clock every hour of the day
+<span style="color: blue;">its yuri o'clock, oh would you look at that? it's yuri o'clock again, oh would you look at that?? it's yuri o'clock every hour of the day</span>
 </p>
 <img width="768" height="1024" alt="Untitled2000_20251102221718" src="https://github.com/user-attachments/assets/77685be9-a518-4155-a740-d1411b1dc61e" />
 
