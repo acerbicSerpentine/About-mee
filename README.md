@@ -6,6 +6,8 @@
 <p align="center">
 its yuri o'clock, oh would you look at that? it's yuri o'clock again, oh would you look at that?? it's yuri o'clock every hour of the day
 </p>
+<img width="768" height="1024" alt="Untitled2000_20251102221718" src="https://github.com/user-attachments/assets/77685be9-a518-4155-a740-d1411b1dc61e" />
+
 <p align="center">
  i am the #1 jadevris truther in this town❤️‍🩹
 </p>
