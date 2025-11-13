@@ -34,6 +34,13 @@
 ![Tumblr_l_249496460772479](https://github.com/user-attachments/assets/0df17541-6764-41a2-abb3-cee4477b0b06)
 ![Tumblr_l_248743127161829](https://github.com/user-attachments/assets/33a5c07f-b053-413b-8077-22aea137db42)
 
+</p align="center">
+you
+</p>
+
+<img width="1088" height="612" alt="Untitled2018_20251113133549" src="https://github.com/user-attachments/assets/96317691-5a6c-49c0-b8db-94cfa3373b7a" />
+<img width="1500" height="500" alt="Untitled2020_20251113150308" src="https://github.com/user-attachments/assets/d6ea7885-c0d5-4c42-a881-6c1d3e077372" />
+
 ‎ ‎ ‎ ‎ ‎ 
 
 
