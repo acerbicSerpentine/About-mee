@@ -1,3 +1,4 @@
+<img width="1088" height="612" alt="Untitled2018_20251113133549" src="https://github.com/user-attachments/assets/70465fac-1ac1-4b0c-9eb1-63e2b6ebf7cf" />
 
 
 [![0052-cancer](https://github.com/user-attachments/assets/3a075076-6794-4875-b722-866eda7f1c3f)
