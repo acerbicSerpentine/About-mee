@@ -2,6 +2,7 @@
 
 
 
+
 [![0052-cancer](https://github.com/user-attachments/assets/3a075076-6794-4875-b722-866eda7f1c3f)
 ](blink.ies)[![0042-aries](https://github.com/user-attachments/assets/17c2d0f6-e521-4140-ae3c-37347dddf048)
 ](blink.ies)[![0043-taurus](https://github.com/user-attachments/assets/e34ebfaa-3fca-4b21-aa5f-05dcf37e1aa7)
@@ -34,10 +35,13 @@
 ![Tumblr_l_249496460772479](https://github.com/user-attachments/assets/0df17541-6764-41a2-abb3-cee4477b0b06)
 ![Tumblr_l_248743127161829](https://github.com/user-attachments/assets/33a5c07f-b053-413b-8077-22aea137db42)
 
-</p align="center">
-you
+#
+<p align="center">
+• i have no dni, but people under 13 are on thin ice, you shouldn't even be on the internet if you are bellow 13
 </p>
-
+<p align="center">
+• anybody can interact, but if you piss me off, you will be hearing from my lawyer ://
+</p>
 <img width="1088" height="612" alt="Untitled2018_20251113133549" src="https://github.com/user-attachments/assets/96317691-5a6c-49c0-b8db-94cfa3373b7a" />
 <img width="1500" height="500" alt="Untitled2020_20251113150308" src="https://github.com/user-attachments/assets/d6ea7885-c0d5-4c42-a881-6c1d3e077372" />
 
