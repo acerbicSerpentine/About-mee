@@ -7,7 +7,8 @@
 ![vriska-serket](https://github.com/user-attachments/assets/04c0843d-c260-455f-9c3d-708031d81f0b)
 </div>
 
-#
+
+# uhh about me uhhh
 
 <div align="center">
 <img width="768" height="1024" alt="Untitled2024_20251113175908" src="https://github.com/user-attachments/assets/bd1a92af-d69d-4beb-931c-b515ca4cc50a" />
@@ -43,7 +44,9 @@
 ![Tumblr_l_249496460772479](https://github.com/user-attachments/assets/0df17541-6764-41a2-abb3-cee4477b0b06)
 ![Tumblr_l_248743127161829](https://github.com/user-attachments/assets/33a5c07f-b053-413b-8077-22aea137db42)
 </div>
+
 #
+
 <p align="center">
 • i have no dni, but people under 13 are on thin ice, you shouldn't even be on the internet if you are bellow 13
 </p>
