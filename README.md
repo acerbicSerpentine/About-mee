@@ -1,5 +1,3 @@
-<img width="1088" height="612" alt="Untitled2018_20251113133549" src="https://github.com/user-attachments/assets/70465fac-1ac1-4b0c-9eb1-63e2b6ebf7cf" />
-<img width="1500" height="500" alt="Untitled2020_20251113150308" src="https://github.com/user-attachments/assets/02b3908b-4149-4d57-b1a7-28ced90af0ea" />
 
 
 
@@ -37,12 +35,6 @@
 ![Tumblr_l_248743127161829](https://github.com/user-attachments/assets/33a5c07f-b053-413b-8077-22aea137db42)
 
 ‎ ‎ ‎ ‎ ‎ 
-<img width="99" height="56" alt="Tumblr_l_248847563505487" src="https://github.com/user-attachments/assets/8e00c4a1-82a3-49c6-b6c1-b1cbba16a13b" />
-![Tumblr_l_249104779703306](https://github.com/user-attachments/assets/bdb36a05-f926-4b00-8d2b-41c79c5689c6)
-![Tumblr_l_249345962308630](https://github.com/user-attachments/assets/d3c9df94-f785-4dee-a041-bc83b42d71db)
-![Tumblr_l_249400476181683](https://github.com/user-attachments/assets/b3fa66cc-dbb3-42fd-ba1e-43b00a8e9a71)
-![Tumblr_l_13201308291421](https://github.com/user-attachments/assets/b43a9d98-6597-4c55-8b05-4d6ca7aee87f)
-![399165555-8ca7d095-080d-48d9-82fa-978c459ebcbd](https://github.com/user-attachments/assets/42999a0a-f083-4da8-9740-5e5a9edcac60)
 
 
 
