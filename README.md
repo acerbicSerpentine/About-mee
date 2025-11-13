@@ -11,6 +11,9 @@
 ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ![vriska-pointing](https://github.com/user-attachments/assets/e43dbb90-6b07-450f-9b58-af2a06edcf25)
 
 
+![homestuck-salamander](https://github.com/user-attachments/assets/4d21f479-2d2d-41c2-9668-0fe3bad2ffe7)
+![the-binding-of-isaac](https://github.com/user-attachments/assets/9a29f762-3b85-44bc-9ef7-202b2f9250a1)
+
 
 
 
