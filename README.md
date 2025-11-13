@@ -41,6 +41,10 @@
 <img width="1088" height="612" alt="Untitled2018_20251113133549" src="https://github.com/user-attachments/assets/96317691-5a6c-49c0-b8db-94cfa3373b7a" />
 <img width="1500" height="500" alt="Untitled2020_20251113150308" src="https://github.com/user-attachments/assets/d6ea7885-c0d5-4c42-a881-6c1d3e077372" />
 
+
+![vriska-homestuck](https://github.com/user-attachments/assets/f1a93a15-aa24-4d5a-b8c0-603c2080fd25)
+
+
 ‎ ‎ ‎ ‎ ‎ 
 
 
