@@ -15,9 +15,11 @@
 ![vriska-pointing](https://github.com/user-attachments/assets/e43dbb90-6b07-450f-9b58-af2a06edcf25)
 </div>
 
+<div align="center">
+  
 ![homestuck-salamander](https://github.com/user-attachments/assets/4d21f479-2d2d-41c2-9668-0fe3bad2ffe7)
 ![the-binding-of-isaac](https://github.com/user-attachments/assets/9a29f762-3b85-44bc-9ef7-202b2f9250a1)
-
+</div>
 
 
 
@@ -48,9 +50,10 @@
 <img width="1088" height="612" alt="Untitled2018_20251113133549" src="https://github.com/user-attachments/assets/96317691-5a6c-49c0-b8db-94cfa3373b7a" />
 <img width="1500" height="500" alt="Untitled2020_20251113150308" src="https://github.com/user-attachments/assets/d6ea7885-c0d5-4c42-a881-6c1d3e077372" />
 
-
+<div align="center">
+  
 ![vriska-homestuck](https://github.com/user-attachments/assets/f1a93a15-aa24-4d5a-b8c0-603c2080fd25)
-
+</div>
 
 ‎ ‎ ‎ ‎ ‎ 
 
