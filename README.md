@@ -11,7 +11,8 @@
 # uhh about me uhhh
 
 <div align="center">
-<img width="768" height="1024" alt="Untitled2024_20251113175908" src="https://github.com/user-attachments/assets/bd1a92af-d69d-4beb-931c-b515ca4cc50a" />
+<img width="768" height="1024" alt="Untitled2024_20251113195053" src="https://github.com/user-attachments/assets/94eba8fe-da3f-40b4-b36b-369f6728b399" />
+
 </div>
 
 ‎<div align="center">
