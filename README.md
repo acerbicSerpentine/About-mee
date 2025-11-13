@@ -1,8 +1,15 @@
 
-me alert!?
+<p align="center">
+  me alert!?
+</p>
+
 ![vriska-serket](https://github.com/user-attachments/assets/04c0843d-c260-455f-9c3d-708031d81f0b)
 
 # 
+<img width="768" height="1024" alt="Untitled2024_20251113175908" src="https://github.com/user-attachments/assets/bd1a92af-d69d-4beb-931c-b515ca4cc50a" />
+
+![vriska-pointing](https://github.com/user-attachments/assets/e43dbb90-6b07-450f-9b58-af2a06edcf25)
+
 
 
 
