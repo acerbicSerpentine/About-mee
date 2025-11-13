@@ -2,14 +2,18 @@
 <p align="center">
   me alert!?
 </p>
-
+<div align="center">
+  
 ![vriska-serket](https://github.com/user-attachments/assets/04c0843d-c260-455f-9c3d-708031d81f0b)
-
+</div>
 # 
+<div align="center">
 <img width="768" height="1024" alt="Untitled2024_20251113175908" src="https://github.com/user-attachments/assets/bd1a92af-d69d-4beb-931c-b515ca4cc50a" />
+</div>
 
-‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ![vriska-pointing](https://github.com/user-attachments/assets/e43dbb90-6b07-450f-9b58-af2a06edcf25)
-
+‎<div align="center">
+![vriska-pointing](https://github.com/user-attachments/assets/e43dbb90-6b07-450f-9b58-af2a06edcf25)
+</div>
 
 ![homestuck-salamander](https://github.com/user-attachments/assets/4d21f479-2d2d-41c2-9668-0fe3bad2ffe7)
 ![the-binding-of-isaac](https://github.com/user-attachments/assets/9a29f762-3b85-44bc-9ef7-202b2f9250a1)
