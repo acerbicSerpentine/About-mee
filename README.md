@@ -1,42 +1,8 @@
 ![75842fdd-d36e-40d1-802b-1aae138e2e28](https://github.com/user-attachments/assets/fd85368d-f604-4c90-9f29-b0ad7f61b323)
 
+REMAKE WIPPP!!!
 
 
-<img width="768" height="1024" alt="Untitled1997_20251101163058" src="https://github.com/user-attachments/assets/04feba98-627f-409f-ac85-194d37951b8b" />
-<p align="center">
-<span style="color: blue;">its yuri o'clock, oh would you look at that? it's yuri o'clock again, oh would you look at that?? it's yuri o'clock every hour of the day</span>
-</p>
-<img width="768" height="1024" alt="Untitled2000_20251102221718" src="https://github.com/user-attachments/assets/77685be9-a518-4155-a740-d1411b1dc61e" />
-
-<p align="center">
- i am the #1 jadevris truther in this town❤️‍🩹
-</p>
-
-![Tumblr_l_248801919823942](https://github.com/user-attachments/assets/76bfb9ca-4d9a-4204-89a3-5df6897c6cc2)
-
-
-‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ![blinkiesCafe-49](https://github.com/user-attachments/assets/a7f7766d-860c-4e7b-a8a8-da260183464c)‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ 
- ![0270-owmybones](https://github.com/user-attachments/assets/8e1f0704-526f-4ed8-aa49-7c30728cc905)
-
-
-<p align="center">
- hellooo, my name is Tin, i go by she/her
-</p>
-<p align="center">
-i have no dni criteria, anyone can be my friend
-</p>
-<p align="center">
-you are welcome to sit with me for any reason! and talk to me for any reason too
-</p>
-<p align="center">
-if you have any preferred pronouns or names you'd like me to use, tell me and i will do my best to make you feel comfortable! if i screw up, it is not on purpose, feel free to point it out
-</p>
-<p align="center">
- i am multifandom and a multishipper! despite how much i yap and yap about jadevris, i like other ships too 🥹
-</p>
-<p align="center">
-i am in an Eastern European timezone, and am usually online for multiple hours at a time
-</p>
 
 [![0052-cancer](https://github.com/user-attachments/assets/3a075076-6794-4875-b722-866eda7f1c3f)
 ](blink.ies)[![0042-aries](https://github.com/user-attachments/assets/17c2d0f6-e521-4140-ae3c-37347dddf048)
@@ -52,15 +18,6 @@ i am in an Eastern European timezone, and am usually online for multiple hours a
 ](blink.ies)[![0051-pisces](https://github.com/user-attachments/assets/5a0a7976-a12b-427e-9fc4-c4a29b436bdb)
 ](blink.ies)
 
-<p align="center">
-many things in this life bring me joy, such as spoiling my friend.. i love spending my money on other people.... or drawing an excessive amount of their ocs, or drawing them x their favourite character.. or making ocs for fandoms that i am not in just so we can talk about them..
-</p>
-
-<p align="center">
- YES i will watch the shows you recommend me, YES i will play your recommended games, YES i will listen to your favourite artists and YES i will listen to you yap and yap and yap for hours <333
- </p>
-
-#BLINKIE-TIMEE
 
 ![Tumblr_l_248984996316320](https://github.com/user-attachments/assets/cb54dac7-bce9-4ca1-bf0f-4da8ffb1d074)
 ![Tumblr_l_248993317625171](https://github.com/user-attachments/assets/970a19e8-e881-4d21-abd1-884b6cf3afd2)
@@ -86,19 +43,3 @@ many things in this life bring me joy, such as spoiling my friend.. i love spend
 ![Tumblr_l_249400476181683](https://github.com/user-attachments/assets/b3fa66cc-dbb3-42fd-ba1e-43b00a8e9a71)
 ![Tumblr_l_13201308291421](https://github.com/user-attachments/assets/b43a9d98-6597-4c55-8b05-4d6ca7aee87f)
 
-
-Jadevris propaganda🥹❤️‍🩹 (YAP SESSION INCOMING ❤️‍🩹❤️‍🩹❤️‍🩹)
-
-Okay so, if you have been paying attention you might have noticed the fact that Jade and Vriska are quite literally polar opposite parallels of eachother, and that's on purpose. They have similar issues, however not very many people notice because of their COMPLETELY OPPOSITE ways of dealing with those issues, such as the aggression towards weakness and the fear or being perceived as weak. Vriska wants to be feared, she wants to be better than the people around her even if it means hurting them, though she also wants THEM to be better BY hurting them, she surpresses her feelings to prevent herself from being seen as weak, Jade wants to be seen as the one who knows the answer to everything, she too, surpresses her feelings to prevent being seen as weak and unprepared, which stems from the fact that since the age of about 6, she has been alone, and in the time period of about 6 years, she somehow managed to teach herself everything from reading to writing to science and nuclear physics, which is CRAZY i mean seriously how smart is this girl, that and paired with the prospit-given ability to know obscure and specific things about people that probably makes her look like a stalker 💔 she probably had her entire life on a schedule and already had everything planned out, then suddenly being dropped into a nonsenical magical world with no idea what is happening around her, left her insanely irritable, lashing out at everyone who spoke to her
-NOW'S THE HATERED TOWARDS WEAKNESS BIT!!!
-the way vriska constantly expects unrealistic things from tavros and bashes him for having fears of his own, Jade did to Jadesprite, which she probably wouldn't have let slip if she was in a better position, regardless, she yelled at her to stop being a crybaby for mourning her friends, telling her to go fight jack noir despite her just losing everything she had, basically telling her that she was a coward to not go on a suicide mission for the greater good, part of the reason she was so aggressive was BECAUSE jadesprite was everything she avoided being, messy, uncertain and scared,"weak"..
-
-that is part of the issues they have in common, meaning that they CAN understand eachother very well if they tried to, (which is why they would be the perfect enemies to friends to lovers GUYS please hear me outt...) enemies because of all the bullshit vriska was pulling with jade, aka the narcolepsy stuff, and calling her weak and useless while talking to tavros, if they DID actually have more conversations, vriska would have been proven very wrong, and i believe she would respect the fact that Jade can stand up for herself
-
-there have also been several amounts of direct parallels, such as the pesterlogs between jade and john, vriska amd terezi, when the first meteor hit, they had the exact same conversation, that's minor and insignificant but it counts as a way to connect them
-
-ANOTHER ONE which i think is WAY more important, the 8 balls, thats one of vriska's signature things, she is often seen asking her 8ball questions and seemingly believing what it says for the most part, and also the portalless one which is supposed to give unsettlingly accurate answers, those are weirdly specific things which Jade just so happens to own too!! seriously why is nobody talking about the fact that she has the same stuff as vriska, the difference however is, that jade says that the 8ball is absolute nonsense, giving random inaccurate answers and overall calling it stupid, unlike Vriska who thinks too little before acting on a whim, usually in a violent way, jade plans everything out, and usually is certain that she is right, which is why she was seen bossing her friends around at the start, despite the fact that she was just there to push the plot along at first.. WHICH IS PROBABLY WHY SHE AND VRISKA HAD LITERALLY NO PESTERLOGS..🥀🥀 missed chance brah... 
-
-jade sets impossibly high standards for herself, she cares too much, she works too much, she wants people to see her as self assured and organized, she doesn't care enough about her feelings because there is nobody to understand her and because they get in her way and make her look weak, hell, not even she understands herself, Vriska however can do stuff with little regard, she doesnt really care that much for the damage or good she does if it makes her look strong and assured, she, too doesn't care enough for her own emotions as to not look weak, and i believe that they could be the healthiest moirails if things play out properly, they could learn off of eachother in a way that balances things out, plus they could understand eachother
-
-do you guys see the vision.... do you... its impossible to miss...
