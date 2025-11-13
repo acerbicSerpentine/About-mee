@@ -1,6 +1,8 @@
 ![75842fdd-d36e-40d1-802b-1aae138e2e28](https://github.com/user-attachments/assets/fd85368d-f604-4c90-9f29-b0ad7f61b323)
 
-REMAKE WIPPP!!!
+<font color="red">This text is red</font>
+
+<span style="color:blue">This text is blue</span>
 
 
 
