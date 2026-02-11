@@ -77,7 +77,7 @@ I've been told several times that people are weary of approaching me because... 
 #
 
 <p align="center">
-• i have no dni, but people under 13 are on thin ice, you shouldn't even be on the internet if you are bellow 13
+• i have no dni, but people under 13 are on thin ice, you shouldn't even be on the internet if you are below 13
 </p>
 <p align="center">
 • anybody can interact, but if you piss me off, you will be hearing from my lawyer ://
