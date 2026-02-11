@@ -27,7 +27,14 @@ if you send me gimmicks on my strawpage, i will TRY to put them all on my art wa
 </p>
 <p align="center">
 check out my socials ↓↓↓
-(which i will add in a bit... once i figure the text link thing out, I'll google it soon i pinky promise)
+</p>
+
+<p align="center">
+  
+[my tiktok](https://www.tiktok.com/@tin.bt?_r=1&_t=ZN-93pyOaRjWmk) 
+<p align="center"> 
+  
+[my tumblr](https://www.tumblr.com/tin-bt?source=share)
 </p>
 
 #
