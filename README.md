@@ -7,8 +7,11 @@
 ![vriska-serket](https://github.com/user-attachments/assets/04c0843d-c260-455f-9c3d-708031d81f0b)
 </div>
 
+<p align="center">
+ hmmmmm about me, i suppose..🤔🤔
+</p>
 
-hmmmmm about me, i suppose..
+<p align="center">
 my name is Tin, or just AS if you want to use my username, but don't want to write out that mouthful every time
 c+h is allowed, encouraged even, come snuggle vroski i am chill company 
 </p>
