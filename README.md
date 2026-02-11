@@ -8,12 +8,29 @@
 </div>
 
 
+hmmmmm about me, i suppose..
+my name is Tin, or just AS if you want to use my username, but don't want to write out that mouthful every time
+c+h is allowed, encouraged even, come snuggle vroski i am chill company 
+</p>
+<p align="center">
+i am offtab or not looking at my screen allot of the time, if i am not responding, just leave me a whisper, I'll see it ❤️‍🩹
+</p>
+<p align="center">
+if you send me gimmicks on my strawpage, i will TRY to put them all on my art wall, but for whatever reason my site is broken and I can't scroll down, I don't know what's up with it🥀
+</p>
+<p align="center">
+  fair warning, i don't use tonetags, however i will if, either.. you ask me to, or it's stated somewhere on your profile that you would like me to
+</p>
+<p align="center">
+check out my socials ↓↓↓
+(which i will add in a bit... once i figure the text link thing out, I'll google it soon i pinky promise)
+</p>
+
 #
 
-<div align="center">
-<img width="768" height="1024" alt="Untitled2024_20251113195053" src="https://github.com/user-attachments/assets/94eba8fe-da3f-40b4-b36b-369f6728b399" />
-
-</div>
+<p align="center">
+I've been told several times that people are weary of approaching me because... least obvious vriska kinnie 🥀🥀 (not fictionkin).. so I'll just say, i pinky promise that i am not evil scary and mean, witnesses can confirm 🥺
+</p>
 
 ‎<div align="center">
 ![vriska-pointing](https://github.com/user-attachments/assets/e43dbb90-6b07-450f-9b58-af2a06edcf25)
