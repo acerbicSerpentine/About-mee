@@ -13,6 +13,7 @@
 
 <p align="center">
 my name is Tin, or just AS if you want to use my username, but don't want to write out that mouthful every time
+  <p align="center">
 c+h is allowed, encouraged even, come snuggle vroski i am chill company 
 </p>
 <p align="center">
